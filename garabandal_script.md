@@ -52,13 +52,15 @@ Now, the Church. Who actually investigates a claim like this?
 
 The answer, under the system in place at the time, was the local bishop. Not Rome. The bishop of Santander appointed a commission of priests, theologians, and medical consultants, and over the early 1960s they interviewed the girls, questioned the villagers, and visited the site.
 
-Their conclusion, endorsed under Bishop Eugenio Beitia, was a Latin phrase: non constat de supernaturalitate.
+Their conclusion, reached in 1962 and echoed by the bishops who followed, came down to a Latin phrase: non constat de supernaturalitate.
 
 It does not mean "it was fake."
 
 Here is what it means. It means the supernatural character of the events has not been established. That's all. Under the old system, there were three possible findings. Constat de supernaturalitate: it is established. Non constat: it is not established. And constat de non supernaturalitate: it is established that it is not. Garabandal received the middle one.
 
 Think of it as a verdict of "unproven." Not guilty, not innocent, not closed.
+
+And it sits beside a second document that supporters often quote. In July 1965, Bishop Beitia issued a note finding nothing in the messages' teaching that deserved censure. That is a statement about the doctrine. It is not a statement about the source.
 
 And there is something else the process does not mean, even in the best case. Even when a bishop says yes, no Catholic is required to believe. These are what the Church calls private revelations. A ruling can say a devotion is safe to practice. It cannot make anyone's faith depend on it.
 
@@ -84,7 +86,7 @@ But there's another reason, and it's more interesting.
 
 The third reason is that nobody inside the system has anything to gain by ruling.
 
-The original verdict belonged to one bishop, in one era. Every bishop of Santander since has inherited a file in which the people who could be hurt by reopening it outnumber the people who could be helped. Reopen it, and you invite crowds, controversy, and a possible second "unproven." Close it, and you lose the faithful for whom the file has become sacred.
+The original verdict belonged to one commission and one bishop, in one era. Every bishop of Santander since has inherited a file in which the people who could be hurt by reopening it outnumber the people who could be helped. Reopen it, and you invite crowds, controversy, and a possible second "unproven." Close it, and you lose the faithful for whom the file has become sacred.
 
 So the file stays where it is.
 
@@ -94,13 +96,13 @@ Padre Pio.
 
 The stigmatic friar from southern Italy was, by then, one of the most famous religious figures alive. And a story spread among supporters that he believed in Garabandal, that the girls had met him or at least written to him, and that he had expressed his support.
 
-It is a compelling story. It's also, so far as the public record shows, a story told through intermediaries rather than a signed endorsement.
+It is a compelling story. It's also, so far as the public record shows, a story built on an unsigned letter and a note attributed to one of his friars, not a signed endorsement.
 
 Padre Pio died on September 23, 1968.
 
 And that left a strange gap. If he was an ally, the ally was gone. If he was a rumor, the rumor had outlived its subject. Either way, the Church had nothing from him to consider.
 
-Meanwhile, the girls grew up. They left the village. Conchita eventually married an American and moved abroad, where she lived a quiet family life far from the pines. The four girls who once had thousands of eyes on them became, over decades, four middle-aged women with ordinary lives.
+Meanwhile, the girls grew up. They left the village. Conchita eventually settled in the United States, far from the pines. The four girls who once had thousands of eyes on them grew into adults with ordinary lives.
 
 Except one thing hadn't changed. Conchita was still understood to hold the date.
 
@@ -114,7 +116,7 @@ And the new system asks Rome, not just the local bishop, to take a direct role.
 
 So where does that leave Garabandal?
 
-In a place no one planned for. It carries a verdict from an older system that no longer exists. It has never been reviewed under the new one. Pilgrims still arrive. The pines are still marked. And a bishop's old three words still sit above it all, unchanged.
+In a place no one planned for. It carries a verdict from an older system that no longer exists. As far as the public record shows, it has not been formally reviewed under the new one. Pilgrims still arrive. The pines are still marked. And a bishop's old three words still sit above it all, unchanged.
 
 Here is the thing a skeptic would say at this point. Surely the Church simply decided it was false, and everyone is being polite.
 
